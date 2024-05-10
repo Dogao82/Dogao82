@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Dogao82
 - 👀 I’m interested in análises de dados e seus projetos com IA
-- Thanks for your visit, follow me for change de word.
+- Thanks for your visit, follow me for change de world.
