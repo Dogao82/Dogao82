@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Dogao82
+- 👋 Hi, I’m DouglasNF
 - 👀 I’m interested in análises de dados e seus projetos com IA
 - Thanks for your visit, follow me for change de world.
